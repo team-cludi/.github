@@ -1,3 +1,5 @@
+![image](https://user-images.githubusercontent.com/56621042/161270232-d3e42487-21c2-4ff9-8167-ce00cbe60bb0.png)
+
 ## Hey, this is us 👋
 
 ### 🚀 Team Cludi
